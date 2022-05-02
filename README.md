@@ -1,3 +1,3 @@
-# Zeruwi
+# Zeruwi's Corner
 
-Zeruwi's soon to be amazing corner of death and unicorns.
+Zeruwi's soon to be amazing space of death and unicorns
